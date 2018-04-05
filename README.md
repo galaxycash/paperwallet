@@ -1,0 +1,1 @@
+GalaxyCash paperwallet
